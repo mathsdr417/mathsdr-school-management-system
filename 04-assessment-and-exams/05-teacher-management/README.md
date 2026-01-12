@@ -1,2 +1,2 @@
-This section contains staff records, supervision tools,
-appraisal systems, and professional development documents.
+This section contains assessment frameworks, continuous assessment
+records, examination papers, marking schemes, and result analysis.
